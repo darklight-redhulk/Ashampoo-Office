@@ -218,4 +218,4 @@ Ashampoo Office is offered as a complete free version with all features unlocked
 Get started today with Ashampoo Office and enhance your productivity! Download now and explore the full capabilities of this powerful office suite.
 
 ---
-**Last updated:** 2026-09-28 18:24:29 UTC
+**Last updated:** 2026-09-28 23:40:01 UTC
